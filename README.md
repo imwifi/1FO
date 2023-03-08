@@ -1,15 +1,3 @@
 ### Project Scuqan
 
-
-                   
-                        
-
-
-           _  __ _ 
-          (_)/ _(_)
- __      ___| |_ _ 
- \ \ /\ / / |  _| |
-  \ V  V /| | | | |
-   \_/\_/ |_|_| |_|
-                   
-                   
+If u have any games i can add, dm me. wifi#0007
