@@ -1,3 +1,12 @@
-### ![#f03c15](ProjectScuqan) `#f03c15` ProjectScuqan
+### Project Scuqan
+
+           _  __ _ 
+          (_)/ _(_)
+ __      ___| |_ _ 
+ \ \ /\ / / |  _| |
+  \ V  V /| | | | |
+   \_/\_/ |_|_| |_|
+                   
+                   
                         
 cool thing
